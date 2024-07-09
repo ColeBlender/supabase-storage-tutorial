@@ -10,4 +10,4 @@ My links:
 - X 👉 https://twitter.com/ColeBlender
 - IG 👉 https://www.instagram.com/yazzibelani
 
-Video 👉 Coming Soon
+Video 👉 https://www.youtube.com/watch?v=87JAdYPC2n0&t=647s
